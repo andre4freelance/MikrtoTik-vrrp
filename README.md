@@ -42,3 +42,4 @@ LinkedIn post:
 <https://www.linkedin.com/posts/link-andre-bastian_mikrotik-cisco-lan-activity-7209202751929483265-GTMu?utm_source=share&utm_medium=member_desktop&rcm=ACoAAD73JlUBty-p-mBfMEW0-O4j0sv-e_PRQvc>
 
 Facebook post:
+<https://www.facebook.com/share/p/15SR1AjWQVx/>
